@@ -16,5 +16,5 @@
  <p align="center"> <img src="https://files.catbox.moe/qw6svy.gif"> also i really really love my friends ^_^ look i drew them! 
    <img src="https://files.catbox.moe/r98ale.png">
    <p align="center">  AAAAHHH I LOVE MY FRIENDS SO MUCH T_T
-   <p align="center"> oki baii! thank u 4 reading! im still learning how to code hehe
+   <p align="center"> oki baii! thank u 4 reading!
 <img src="https://files.catbox.moe/8sf53n.png">
