@@ -1,7 +1,6 @@
 <img src="https://files.catbox.moe/4ovsof.png">
 <p align="center"> <img src="https://files.catbox.moe/qw6svy.gif"> it me Liam
 <p align="center"> or u can call me Nikolas/sarv/sarvielle/egg
-<p align="center"> heyy i can code! who said i couldn't! 
 <p align="center"> she/him, im omnigender and aroace! 
 <p align="center"> <img src="https://files.catbox.moe/bcluzw.gif"> <i> !!! BYI !!!😢😢 </i> 
 <p align="center"> i can be very frustrating or annoying sometimes since i get very excited when someone notices me
