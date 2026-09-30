@@ -1,2 +1,2 @@
-<img src="https://files.catbox.moe/x8vqbd.png">
-I love Rick
+<img src="5e5d79c988657638d20cb185ea10b01b.jpg">
+
